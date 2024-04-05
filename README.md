@@ -1,4 +1,5 @@
-# Canva-projects
+# Designing-projects
+
 1.[logo(flourist)]
 (https://github.com/richamudi/Canva-projects/assets/159586742/f7cd76d1-ff59-4d61-8365-6bbb4ac558bd)
 2.[Thank you poster]
