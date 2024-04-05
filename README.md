@@ -5,5 +5,3 @@ Marketing Reel
 https://www.canva.com/design/DAF_-RmkWRA/A5DltdMMh_oiZZSQjgobwA/edit
 [Weekly Planner 2024.pdf](https://github.com/richamudi/Canva-projects/files/14627414/Weekly.Planner.2024.pdf)
 [Business card (1).pdf](https://github.com/richamudi/Canva-projects/files/14627423/Business.card.1.pdf)
-Luxury Menu
-https://www.canva.com/design/DAFmvxInTk0/WRwhBukUqCLe8TxRAO-yOg/edit
